@@ -1,5 +1,6 @@
-
-![](11874828_c0381.gif)
+<p align="center">
+  <img src="11874828_c0381.gif" alt="animated" />
+</p>
 
 <div align="center">
   <details>

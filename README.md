@@ -1,3 +1,6 @@
+
+![](11874828_c0381.gif)
+
 <div align="center">
   <details>
     <summary>$\color{orange}\text{Important ok}$</summary>

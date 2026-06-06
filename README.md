@@ -2,7 +2,7 @@
 <img width="2048" height="168" alt="tumblr_7b4cfe867f70c2b96a8f4ea0e6b86c00_ff8aa82f_2048" src="https://github.com/user-attachments/assets/eeb663b0-7330-4813-beaa-ab90f56a2f20" />
 
 <h1 align="center">
-$\color{darkred}\text{〷 " CONNECTION TERMINATED . I'M SORRY PHIGHTER " 〷}$
+$\color{darkred}\text{〷 " 𝐓𝐇𝐄 𝐇𝐄𝐀𝐕𝐄𝐍 𝐈 𝐁𝐔𝐑𝐈𝐄𝐃 𝟔 𝐅𝐄𝐄𝐓 𝐔𝐍𝐃𝐄𝐑𝐆𝐑𝐎𝐔𝐍𝐃 " 〷}$
 </h1>
 
 <img width="1920" height="778" alt="finality" src="https://github.com/user-attachments/assets/18b790ec-5d73-48a0-beea-59702c1d807a" />

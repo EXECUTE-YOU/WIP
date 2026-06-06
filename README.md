@@ -8,7 +8,7 @@ $\color{darkred}\text{〷 " 𝐓𝐇𝐄 𝐇𝐄𝐀𝐕𝐄𝐍 𝐈 𝐁𝐔�
 <img width="1920" height="778" alt="finality" src="https://github.com/user-attachments/assets/18b790ec-5d73-48a0-beea-59702c1d807a" />
 <img width="1312" height="92" alt="tumblr_2f72df780181a3ff40c994a57d9ead33_48158c67_2048" src="https://github.com/user-attachments/assets/353fe313-fb00-4263-8525-04ad1776ba31" />
 <h2 align="center">
-$\color{darkgray}\text{〷 " LET'S NOT DO THAT AGAIN " 〷}$
+$\color{lightyellow}\text{〷 " FOR SOMEONE OF YOUR CALIBER , I EXPECTED BETTER , MANAGER " 〷}$
 </h2>
 
 </p>
